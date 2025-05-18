@@ -11,3 +11,4 @@ https://github.com/user-attachments/assets/daa1930b-f93a-409f-b309-60aa5857e3a9
 
 https://github.com/user-attachments/assets/103145d5-8c80-4419-8be2-e4b12fba8238
 
+[imgs_11zon.pdf](https://github.com/user-attachments/files/20274451/imgs_11zon.pdf)
